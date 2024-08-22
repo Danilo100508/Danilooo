@@ -1,5 +1,5 @@
 # Danilooo
-- **Oii, bem vind@! me chamo Danilo Augusto**
+- **Oii, bem vind@! Me chamo Danilo Augusto**
 - Tenho 16 anos, faço aniversário dia 10 de maio
 - Estou cursando o E. Médio
 - Atualmente busco melhorar meu rendimento na escola.
